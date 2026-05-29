@@ -1,1 +1,0 @@
-# GROUP_SIOMAIRICE_SDG3_RuralHealthClinicSystem
